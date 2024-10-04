@@ -1,0 +1,8 @@
+- you can call me Zero6
+- I like game's
+- I’m currently learning more code
+- I’m going to collaborate on some things
+- if you want to reach me you will have to have discord
+- Pronouns: he/him
+- i play a lot of game's like minecraft and more
+- i like the color's blue, red, gold and purple
